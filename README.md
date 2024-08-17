@@ -1,0 +1,6 @@
+<p>"Review c&ocirc;ng ty" l&agrave; một b&agrave;i viết hoặc video đ&aacute;nh gi&aacute; về một doanh nghiệp, nhằm cung cấp th&ocirc;ng tin v&agrave; &yacute; kiến c&aacute; nh&acirc;n để gi&uacute;p người đọc hoặc người xem hiểu r&otilde; hơn về c&ocirc;ng ty đ&oacute;. B&agrave;i review thường bắt đầu bằng phần giới thiệu về c&ocirc;ng ty, bao gồm t&ecirc;n, ng&agrave;nh nghề hoạt động, v&agrave; lịch sử h&igrave;nh th&agrave;nh. Sau đ&oacute;, người đ&aacute;nh gi&aacute; sẽ ph&acirc;n t&iacute;ch c&aacute;c yếu tố quan trọng như chất lượng sản phẩm hoặc dịch vụ, m&ocirc;i trường l&agrave;m việc, ch&iacute;nh s&aacute;ch nh&acirc;n sự, v&agrave; mức độ h&agrave;i l&ograve;ng của kh&aacute;ch h&agrave;ng. #reviewcongty #reviewcongtyuytin</p>
+<p>Website: <a href="https://reviewcongty.pro/">https://reviewcongty.pro/</a></p>
+<p><a href="https://www.pinterest.com/reviewcongty/">https://www.pinterest.com/reviewcongty/</a></p>
+<p><a href="https://vimeo.com/reviewcongty">https://vimeo.com/reviewcongty</a></p>
+<p><a href="https://www.youtube.com/@reviewcongty">https://www.youtube.com/@reviewcongty</a></p>
+<p><a href="https://gravatar.com/reviewcongtypro">https://gravatar.com/reviewcongtypro</a></p>
